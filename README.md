@@ -1,2 +1,2 @@
 # HoV
-Pull 6 -> CC Runecaver G7 et Marksman G7
+Kit Need 2 cc, slow ( demo> all) et detourne
